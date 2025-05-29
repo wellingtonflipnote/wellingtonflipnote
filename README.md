@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on sudomemo locales 🤑
 - 📫 How to reach me: wellingtonflipnote.carrd.co
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: dolphins are evil af and sharks are sweet :)
+- ⚡ Fun fact: Did you know that in terms of male human and female--
 
 <!---
 wellingtonflipnote/wellingtonflipnote is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
